@@ -1,7 +1,7 @@
 # answers to questions 
 1. What do you think digital writing is? 
 
-Any writing done on a screen, online. Anything electronically written. Not pen and paper. Can include online journaling, videos, images, audio and written works online.  
+[Any writing done on a screen, online. Anything electronically written. Not pen and paper. Can include online journaling, videos, images, audio and written works online.  
 
  
 
@@ -21,4 +21,4 @@ I write mostly fiction. As a kid my writting was always written in third person 
 
 4. What tools (or techniques) do you use to write? 
 
- Ususally my wriitn is done throigh a word document (or google docs) as i like to be able to edit and restart and cut things out, whereas on pen and paper its near impossible to get things right on the first try, and as a perfectionist it’s difficult. I try to include all the senses when i write, i like simils and metaphors, foreshadowing, chekovs gun are imporatnt things that i would like to work on. Illustration and imagery are other being wriitng techniques that i use, and very occasionally i try and make things rhyme (this usually happens more in poetry).  
+ Ususally my wriitn is done throigh a word document (or google docs) as i like to be able to edit and restart and cut things out, whereas on pen and paper its near impossible to get things right on the first try, and as a perfectionist it’s difficult. I try to include all the senses when i write, i like simils and metaphors, foreshadowing, chekovs gun are imporatnt things that i would like to work on. Illustration and imagery are other being wriitng techniques that i use, and very occasionally i try and make things rhyme (this usually happens more in poetry).]
