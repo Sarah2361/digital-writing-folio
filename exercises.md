@@ -189,7 +189,7 @@ March 17 – coding
 
 
 # <p>  Volume 1: Carving in possibilities 
-     Reminded me very much of the angels in Doctor Who  <p>
+     Reminded me very much of the angels in Doctor Who 
 
 
 
